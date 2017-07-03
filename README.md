@@ -1,1 +1,0 @@
-# guilhermemalfatti.github.io
